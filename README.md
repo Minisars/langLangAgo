@@ -1,0 +1,2 @@
+# langLangAgo
+doing for self
